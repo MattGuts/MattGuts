@@ -1,5 +1,5 @@
 #About me
 
->Newbie programmer and computer tehnician  
+>Newbie programmer, coder and computer tehnician  
 >Casual gamer 
 
